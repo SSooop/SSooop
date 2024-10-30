@@ -1,7 +1,7 @@
 👋 Hi, I’m @SSooop
 I am interested in computational biology.
 
-Please contect me using S.Chenpeng480@gmail.com
+Please get in touch with me using S.Chenpeng480@gmail.com
 
 
 <!---
